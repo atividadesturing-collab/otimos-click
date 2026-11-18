@@ -1,2 +1,2 @@
-# otimos-click
-auto clicker facil, rapido e maneiro
+#prime clicker$
+auto clicker facil, rapido e maneiro$
